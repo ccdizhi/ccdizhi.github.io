@@ -2,6 +2,7 @@
 <center>
 <span style="font-size:20px">草草视频最新地址</span><br>
 <br />
+<span style="font-size:20px"><a href="https://caocao.caocao2.fun" target="_blank">caocao2.fun</a></span><br>
 <span style="font-size:20px"><a href="https://caocao.caocao1.fun" target="_blank">caocao1.fun</a></span><br>
 <span style="font-size:20px"><a href="https://caocao.caocao19.xyz" target="_blank">caocao19.xyz</a></span><br>
 <span style="font-size:20px"><a href="https://caocao.caocao18.xyz" target="_blank">caocao18.xyz</a></span><br>
